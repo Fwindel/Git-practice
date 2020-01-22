@@ -38,3 +38,15 @@ You may want to write about:
 - Questions the readings raised for you
 - Contradictions, conundrums, struggles (theoretical, practical, personal)
 
+### Group inquiry project
+
+All students will participate in a group inquiry project related to the course material. Five-person teams will each formulate a psychological question and compile a set of resources for study of the question.   
+
+The resources can include: 
+- books, articles, films, websites, activities to pursue, and physical locations to visit
+
+You will: 
+
+-  Anntotat a list of resources to indicate the relevance of each item to the question of interest. 
+- All of the annotated resource lists will be prepared in a WIKI format and made publicly available on the internet by the conclusion of the course. 
+- The project will be completed in stages with deadlines for completion of each stage.
